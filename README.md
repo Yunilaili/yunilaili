@@ -11,7 +11,6 @@
 
    *<div align="center"> thank you for coming by*
    
-  
  
 
 
