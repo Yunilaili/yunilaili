@@ -3,7 +3,7 @@
 
 *<div align="center"> info*
 
-  ``` hi im yuni (juno and nova are also fine if not prefered) ,i am a minor and go by any pronouns (this includes neopronouns) and preferably if you were to refer to me (as in woman,man,person,etc. prefered noun if you get what i mean) then id like if youd use "vessel" for that if its not too much of a bother for you. you probably also came here from ponytown. you are always free to interact and c+h (unless you are part of my dni) ,although i may be a bit rude at first but i swear im nice once i get to know you better. i am a MINOR so please beware of that aswell. my interests are mainly the void cult and chonny jash ,but you can find more about that in my strawpage. i feel like im legally required to say that none of my cosplays are forsaken (as i am not in the fandom anymore) ,but i am willing to discuss the topic. ```
+  ``` hi im yuni (juno and nova are also fine if not prefered) ,i go by any pronouns (this includes neopronouns) and preferably if you were to refer to me (as in woman,man,person,etc. prefered noun if you get what i mean) then id like if youd use "vessel" for that if its not too much of a bother for you. you probably also came here from ponytown. you are always free to interact and c+h (unless you are part of my dni) ,although i may be a bit rude at first but i swear im nice once i get to know you better. i am a MINOR so please beware of that aswell. my interests are mainly the void cult and chonny jash ,but you can find more about that in my strawpage. i feel like im legally required to say that none of my cosplays are forsaken (as i am not in the fandom anymore) ,but i am willing to discuss the topic. ```
 
   *<div align="center"> dni if*
   
