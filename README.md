@@ -3,7 +3,7 @@
 
 *<div align="center"> info*
 
-  ``` hi im yuni (juno and nova are also fine if not prefered) ,i go by any pronouns (this includes neopronouns). you probably also came here from ponytown. you are always free to interact and c+h (unless you are part of my dni) ,although i may be a bit rude at first but i swear im nice once i get to know you better. i am a minor. my interests are mainly the void cult and chonny jash ,but you can find more about that in my strawpage. none of my cosplays are forsaken related in any way.   ```
+  ``` hellooo im yuni (juno or nova also works)!!!! im mainly into the void cult and chonny jash right now   ```
 *<div align="center"> dni if*  
 ``` you are below the age of 13 ,you are a "freaky" person ,you are prone to being sensitive/taking some jokes,words,etc. too seriously at times ,you just want someone to vent to (this does not apply if we are close friends but please understand that i am not good at comforting people) ,you dont like idling for long times on ponytown (this is not necessarily a full on DNI but i am not usually one to move from my usual spot) ,you apply to any basic DNI criterias ```
 
