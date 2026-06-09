@@ -9,7 +9,8 @@
 
    *<div align="center"> thank you for coming by!!*
    
-## <p align="center"> <img src="https://komarev.com/ghpvc/?username=yunilaili&label=%20!!!&color=16004c&style=flat" alt="yunilaili" /> </p>
+
 
 
 <img src="https://github.com/user-attachments/assets/bc5ced12-45ff-41a3-b1cf-d3e2258b2bff?raw=true "/>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=yunilaili&label=%20!!!&color=392756&style=flat" alt="yunilaili" /> </p>
