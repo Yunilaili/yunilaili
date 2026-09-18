@@ -10,7 +10,7 @@
 
 *<div align="center"> dni if* 
 
-``` you are below the age of 13, you are one of those overly "silly" people ,you are a "freaky" person, you are prone to being sensitive/taking some jokes, words, etc. too seriously at times, you just want someone to vent to (this does not apply if we are close friends ), you dont like idling for long times on ponytown (this is not necessarily a full on DNI but i am not usually one to move from my regular spots), you apply to any basic DNI criterias(homophobes, transphobes, racists, etc. and yes ai defenders count too for me), trolls/ragebaiters, you ask for advice and then immediately refuse to acknowledge it after i give it to you```
+``` you are below the age of 13, you are one of those overly "silly" people ,you are a "freaky" person, you are prone to being sensitive/taking some jokes, words, etc. too seriously at times, you dont like idling for long times on ponytown (this is not necessarily a full on DNI but i am not usually one to move from my regular spots), you apply to any basic DNI criterias(homophobes, transphobes, racists, etc. and yes ai defenders count too for me), trolls/ragebaiters, you ask for advice and then immediately refuse to acknowledge it after i give it to you, DO NOT VENT TO ME. I WILL NOT LISTEN TO IT UNLESS WE ARE FRIENDS. STOP VENTING TO ME OR I WILL BLOCK YOU. IF YOU JUST WANT SOMEONE TO VENT TO DO NOT DO IT TO ME. I GOT ENOUGH GOING ON IN MY LIFE.```
 
    *<div align="center"> thank you for coming by!!*
    
