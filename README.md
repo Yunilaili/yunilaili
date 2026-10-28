@@ -14,7 +14,7 @@
 
 <details>
 
-<summary> nominations </summary>
+  <summary> nominations </summary>
 <div align="center"> ponytowns xeladrag
 
   [@Ponytowns-rewards](https://github.com/Ponytowns-rewards)
