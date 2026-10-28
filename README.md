@@ -22,7 +22,7 @@
 [@piddlesjet](https://github.com/piddlesjet)
 </details>
 
-   *<div align="center"> thank you for coming by!!*
+   <div align="center"> thank you for coming by!!
    
 
 
