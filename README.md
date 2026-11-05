@@ -20,6 +20,7 @@
   [@Ponytowns-rewards](https://github.com/Ponytowns-rewards)
 [@THE-TEMPIST](https://github.com/THE-TEMPIST)
 [@piddlesjet](https://github.com/piddlesjet)
+[@pony-town-nominations](https://github.com/pony-town-nominations)
 </details>
 
    <div align="center"> thank you for coming by!!
